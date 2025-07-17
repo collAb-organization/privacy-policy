@@ -15,7 +15,7 @@ Sécurité.
 Nous nous engageons à protéger vos informations et à respecter votre vie privée. L’accès à la caméra est strictement limité à l’utilisation nécessaire au bon fonctionnement de l’application.
 
 Contact.   
-Pour toute question concernant cette politique de confidentialité, veuillez nous contacter à l’adresse indiquée dans l’application.
+Pour toute question concernant cette politique de confidentialité, veuillez nous contacter à findmyteammates@gmail.com
 
 Date de mise à jour : 16-07-2025
 

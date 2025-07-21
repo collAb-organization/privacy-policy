@@ -1,0 +1,1 @@
+To delete your account, send an email to : findmyteammates@gmail.com from the email associated to the accounted to be deleted. The admin will delete your account and all of the associated infos within 72 hours.
